@@ -24,3 +24,15 @@ A Tech/House mix I enjoy made by my cousin CJ!
 [Archived Link](https://web.archive.org/web/20240229180044/https://www.sakuraofamerica.com/product/koi-water-color-field-sketch-kit/)
 
 A travel watercolor kit that I enjoy using.
+
+
+
+
+
+
+ drawing tiger
+## [How to Draw an Easy Realistic Tiger](https://easydrawingguides.com/how-to-draw-an-easy-realistic-tiger/)
+[Archived Link]( https://web.archive.org/web/20260304214139/https://easydrawingguides.com/how-to-draw-an-easy-realistic-tiger/)
+
+A step-by-step tutorial to help beginners learn how to draw a realistic tiger.
+
