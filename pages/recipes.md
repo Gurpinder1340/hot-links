@@ -19,3 +19,9 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
 My grandmas mississippi mud recipe is a lot different. This one has marshmallows?
+
+
+## [The Most Amazing Chocolate Chip Cookies](https://joyfoodsunshine.com/the-most-amazing-chocolate-chip-cookies/)
+[Archived Link](https://web.archive.org/web/20260301175643/https://joyfoodsunshine.com/the-most-amazing-chocolate-chip-cookies/)
+
+A recipe for delicious chocolate chip cookies.
