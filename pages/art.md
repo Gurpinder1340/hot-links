@@ -12,9 +12,9 @@ A small visual tutorial on how to draw a rat.
 
 
 ## [How to Draw an Easy Realistic Tiger](https://easydrawingguides.com/how-to-draw-an-easy-realistic-tiger/)
-[Archived Link]( https://web.archive.org/web/20260304214139/https://easydrawingguides.com/how-to-draw-an-easy-realistic-tiger/)
+[Archived Link](https://web.archive.org/web/20260304214139/https://easydrawingguides.com/how-to-draw-an-easy-realistic-tiger/)
 
-A visual tutorial on how to draw a tiger.
+A visual tutorial on how to draw a tiger. 
 
 
 
